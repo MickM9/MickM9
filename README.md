@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MickM9  (better known as just Mick but that handle is already taken.
+- 👀 I’m not a developer, I just joined to ask a question about Open Shell
